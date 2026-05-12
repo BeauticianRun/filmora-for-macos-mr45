@@ -1,4 +1,4 @@
-# 
+# Filmora for macOS instant Plugin - multi-cam-editing and text-animation is the best Filmora for macOS plugin, featuring multi-cam-editing and text-animation. Safe, efficient, and
 
 
 
